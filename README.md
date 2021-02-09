@@ -30,5 +30,19 @@ Biggest Machine Learning Influencers in AI in Q4 2020 by @verdictuk @globaldatap
 
 https://www.verdict.co.uk/influencers-artificial-intelligence-2/
 
+A True Data Science Leader Influencing #MachineLearning Industry 
+
+https://www.analyticsinsight.net/dr-ganapathi-pulipaka-true-data-science-leader-influencing-industry-staging-progression-experiences/
+
+Implementing Quantum Blockchain AI Technology
+
+https://brookewhistance.medium.com/implementing-quantum-blockchain-ai-technology-6297503fde96
+
+Top 10 influencers of artificial intelligence in Q4 2019
+
+https://varindia.com/news/top-10-influencers-of-artificial-intelligence-in-q4-2019
+
+
+
 
 
