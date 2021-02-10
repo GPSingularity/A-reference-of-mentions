@@ -42,6 +42,10 @@ Top 10 influencers of artificial intelligence in Q4 2019
 
 https://varindia.com/news/top-10-influencers-of-artificial-intelligence-in-q4-2019
 
+Top Twitter Topics by Data Scientists #5
+
+https://medium.com/atoti/top-twitter-topics-by-data-scientists-5-4f69f8d49b51
+
 
 
 
